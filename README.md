@@ -10,4 +10,4 @@ Meu nome é: Higor
 
    @dephwyy
 
-  ![](https://media1.tenor.com/m/AapKRNOpG6cAAAAC/ohno-meme-monkey-ohno.gif).
+  ![](https://tenor.com/pt-BR/view/joe-goldberg-gif-27002005).
